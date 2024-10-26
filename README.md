@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... How to use Ableton Live production software
 - 💞️ I’m looking to collaborate on ... Trance tracks with female singers
 - 📫 How to reach me ... text me 843-331-2120
-- 😄 Pronouns: ... He/She
+- 😄 Pronouns: ... BOY
 - ⚡ Fun fact: ... I'm a DJ
 
 <!---
